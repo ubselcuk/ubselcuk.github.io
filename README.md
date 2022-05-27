@@ -1,1 +1,0 @@
-# ubselcuk.github.io
